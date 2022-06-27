@@ -1,1 +1,1 @@
-# Efektif_Site_Tasar-m-
+# Efektif_Site_Tasarimi
